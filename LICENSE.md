@@ -1,4 +1,4 @@
-#  
+#  Sécurisé escape tsunami for brainrots script est le meilleur escape tsunami for brainrots script avec invisibilité et sans collision. Sécurisé, fiable et optimisé pour des
 
 
 
